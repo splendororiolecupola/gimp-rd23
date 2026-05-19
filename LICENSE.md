@@ -1,4 +1,4 @@
-# 
+# elite Adobe Photoshop para PC plugins é o melhor Adobe Photoshop para PC plugins com simulação de fluidos e controle de câmera. Seguro, confiável e otimizado para máximo
 
 
 
